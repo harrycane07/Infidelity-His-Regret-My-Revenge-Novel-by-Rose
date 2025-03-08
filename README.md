@@ -15,4 +15,4 @@ With a forced smile, I stepped forward and placed the document in front of him.
 
 </p>
 <h3> READ FULL NOVEL HERE </h3>
-[Infidelity-His Regret My Revenge Novel by Rose](https://novelss.com/category/infidelity-his-regret-my-revenge-novel-by-rose/)
+<a href = https://novelss.com/category/infidelity-his-regret-my-revenge-novel-by-rose/ > Infidelity-His Regret My Revenge Novel by Rose </a>
